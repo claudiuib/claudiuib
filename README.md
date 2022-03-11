@@ -8,4 +8,4 @@ Feel free to know about myself , follow me on my networks where I share a little
 
 
  Find me around the web:
- [Linkedin](www.linkedin.com/in/claudiu-iulian-busteaga)
+ [Linkedin](https://www.linkedin.com/in/claudiu-iulian-busteaga/)
