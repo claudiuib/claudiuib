@@ -1,6 +1,6 @@
  Hi there  👋  🌎
 
-I'm Claudiu-Iulian Busteaga,student and freelancer .I'm currently study💻 Computer Science at Middlesex University (London-GB).
+I'm Claudiu-Iulian Busteaga,student and freelancer .
 I have a passion for technology-research,details and problems solving.
 
 
